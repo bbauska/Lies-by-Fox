@@ -19,4 +19,15 @@ Personnel Changes: Reports indicate Patel fired members of a task force investig
 Defamation Suit: Patel filed a $250 million defamation lawsuit in the U.S. District Court for the District of Columbia against The Atlantic and its reporter. 
 
 The Atlantic
+
+Since launching on October 7, 1996, Fox News Channel has featured prominent hosts including original personalities Sean Hannity, Neil Cavuto, Steve Doocy, and Jon Scott. Other long-term and notable hosts over the past three decades include Tucker Carlson, Laura Ingraham, Jesse Watters, Harris Faulkner, Brian Kilmeade, and Greg Gutfeld.This video shows the departure of long-time Fox News anchor Shepard Smith:
+
+Hegseth - so pathetic
+
+Fox News was founded in 1996, when the entertainment impresario and conservative political consultant Roger Ailes acted on a pair of insights: that most people found television news boring and that a significant number of conservatives didn’t trust it to represent their interests and values fairly. The TV producer in Ailes saw a marketing niche, and the political operative in him saw a direct way of courting voters. Rupert Murdoch owned the network, but Ailes was its intellectual author. In the two decades since, the network has thrived without legitimate competition of any kind. It has proved to be a big tent, sheltering beneath it some excellent reporters but also a collection of blowhards, performance artists, cornballs, and Republican operatives in rehab from political failures and personal embarrassments. With the help of this antic cast, the Fox audience has come to understand something important that it did not know before: The people who make “mainstream” news and entertainment don’t just look down on conservatives and their values—they despise them.
+
+
+Legal Context: The "Right to Lie" MythAn often-cited 2003 Florida case involving two Fox reporters, Jane Akre and Steve Wilson, who claimed they were pressured to air false information about bovine growth hormone (BGH), is often wrongly used to argue that a court ruled Fox has a legal right to lie. In reality, the court found no violation of the FCC's policy against falsification, as those policies only applied to airwaves, not cable networks
+
+
  
